@@ -1,0 +1,1 @@
+# anticipation_inflation_index
